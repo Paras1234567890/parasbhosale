@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Kabir Shaikh! 🚀
+# 👋 Hi there, I'm Paras Bhosle! 🚀
 
 🎓 **B.Tech CSE | 3rd Year Student**  
 💻 Passionate about coding, problem-solving & building cool stuff  
